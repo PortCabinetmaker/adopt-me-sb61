@@ -1,4 +1,4 @@
-#  
+#  Experience adopt me like never before with professional Scripts for adopt me, the #1 Script. Includes invisibility and infinite resources for
 
 
 
